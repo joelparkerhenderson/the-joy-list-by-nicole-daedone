@@ -1,6 +1,6 @@
-# The Joy
+# The Joy List - By Nicole Daedone
 
-By Nicole Daedone (https://nicoledaedone.com/)
+https://nicoledaedone.com/
 
 I keep a list of ways to turn poison into medicine. When I get caught between this and that, I need little reminders of what brings sustainable joy. Thought I'd share a few. I call it a Mycelium mindset. Or a network mindset. Growing down rather than up. To find my place amongst the whole of things.
 
@@ -68,30 +68,100 @@ I keep a list of ways to turn poison into medicine. When I get caught between th
 
 32. Drop the rock; the thing you took on to comfort or survive, the thing that was once a solution that has become a problem. The thing that both suffocates and tells you you can't live without it. Drop the formulas. Be kind. Thank it whatever it was: extra food, the partner who you knew wasn't the right one, the attitude of defense. Maybe light some incense and gather some flowers. Write all the benefits you got. Honor it, and send the newfound freedom back as a way to thank it.
 
-34. Try working on some koans. They help the mind discover that two opposing views can live inside the same space and eventually with enough ambient wrestling find a beautiful new third reality that includes both. But goes beyond. John Tarrant's book Bring Me The Rhinoceros is a fun way to explore.
+33. Try working on some koans. They help the mind discover that two opposing views can live inside the same space and eventually with enough ambient wrestling find a beautiful new third reality that includes both. But goes beyond. John Tarrant's book Bring Me The Rhinoceros is a fun way to explore.
 
-35. Vow to be positionally homeless. They say the female dieties known as Daikinis can't land because they are vast space itself. Become the vast space. Don't apply your own ball and chain of beliefs. This doesn't mean don't have a stance. Do, but keep it flexible, open to change. Read as many opposing viewpoints as you do supporting. If you get offended, know that is the language of the ego at work. Or, if you feel like you have to prove a point. Whenever you can, come back to, "it's just us chickens here". As Mary Oliver says, save the only life you can, your own. And if you have some extra, use it to help, not to preach.
+34. Vow to be positionally homeless. They say the female dieties known as Daikinis can't land because they are vast space itself. Become the vast space. Don't apply your own ball and chain of beliefs. This doesn't mean don't have a stance. Do, but keep it flexible, open to change. Read as many opposing viewpoints as you do supporting. If you get offended, know that is the language of the ego at work. Or, if you feel like you have to prove a point. Whenever you can, come back to, "it's just us chickens here". As Mary Oliver says, save the only life you can, your own. And if you have some extra, use it to help, not to preach.
 
-36. Check out altered mind things like cool new light shows in big cities or Terence McKenna podcasts. Maybe an ayahuasca documentary. Something that reminds you that there is more than the world of appearances.
+35. Check out altered mind things like cool new light shows in big cities or Terence McKenna podcasts. Maybe an ayahuasca documentary. Something that reminds you that there is more than the world of appearances.
 
-37. Ask someone who is stuck in the dumps for help with something small that they can win at. Even will you hand me the pepper.. Then acknowledge appreciation. Hook into the human biology that never forgets that we are here to help each other and this is the way out.
+36. Ask someone who is stuck in the dumps for help with something small that they can win at. Even will you hand me the pepper.. Then acknowledge appreciation. Hook into the human biology that never forgets that we are here to help each other and this is the way out.
 
-38. Let yourself admit it; where you are embarrassingly self cherishing under the radar, where you want other people to notice you but won't do it overtly, where you draw the attention of others but either don't offer substance in return or act like you didn't do it. Or worse, blame then for their attention. Treat all attention as a gift. Sometimes misguided or clumsy, but a response. Be the person who trains others how to respond with grace.
+37. Let yourself admit it; where you are embarrassingly self cherishing under the radar, where you want other people to notice you but won't do it overtly, where you draw the attention of others but either don't offer substance in return or act like you didn't do it. Or worse, blame then for their attention. Treat all attention as a gift. Sometimes misguided or clumsy, but a response. Be the person who trains others how to respond with grace.
 
-39. Make someone or several people your reason for greatness, your muse. You don't have to tell them. No one has to know. But imagine that you are handing them your art, your creation, your good works. If you get in a fight and they stop inspiring you, choose someone else. It could be a great teacher or a political leader. I wrote a whole book for a political leader I like so if he ever ran for president, it might be helpful in the background.
+38. Make someone or several people your reason for greatness, your muse. You don't have to tell them. No one has to know. But imagine that you are handing them your art, your creation, your good works. If you get in a fight and they stop inspiring you, choose someone else. It could be a great teacher or a political leader. I wrote a whole book for a political leader I like so if he ever ran for president, it might be helpful in the background.
 
-40. Take embarrassment as the path because lord knows, there's a lot of it in the opening of the mind. Disillusionment too. It's the nature of freeing oneself from illusion. Sometimes just say "okay this is embarrassing". Let the cheeks flush and the pride quake. It passes. And in its place comes wisdom.
+39. Take embarrassment as the path because lord knows, there's a lot of it in the opening of the mind. Disillusionment too. It's the nature of freeing oneself from illusion. Sometimes just say "okay this is embarrassing". Let the cheeks flush and the pride quake. It passes. And in its place comes wisdom.
 
-41. Practice critical wisdom rather than critical thinking. Critical wisdom is thinking plus compassion. And it requires you to roll up your sleeves, not just spend your life as a paralegal building a defense for how wrong life is.
+40. Practice critical wisdom rather than critical thinking. Critical wisdom is thinking plus compassion. And it requires you to roll up your sleeves, not just spend your life as a paralegal building a defense for how wrong life is.
 
-42. If you have your feet on the ground, perhaps try loving the difficult to love; the friend who withdraws and nips at you before they do. Or the co-worker who always tops you and has to be right, so critical of everything you do. The grandiose and the self-righteous know it alls. Love the friend that always whines and poo poos any offers out of hell.
+41. If you have your feet on the ground, perhaps try loving the difficult to love; the friend who withdraws and nips at you before they do. Or the co-worker who always tops you and has to be right, so critical of everything you do. The grandiose and the self-righteous know it alls. Love the friend that always whines and poo poos any offers out of hell.
 
-43. Take a page from the way seer manifesto and consider that everything that is wrong with you is actually what is right with you, that the glib diagnoses are often meant to keep the poppies all at the same level, not because we've lifted each other up but because we cut each other down to right size.
+42. Take a page from the way seer manifesto and consider that everything that is wrong with you is actually what is right with you, that the glib diagnoses are often meant to keep the poppies all at the same level, not because we've lifted each other up but because we cut each other down to right size.
 
-44. Try some peanut butter with your apple. The kind you grind in the store.
+43. Try some peanut butter with your apple. The kind you grind in the store.
 
-45. Sneak "I love you's" into the world to the ones you love and aren't interested in receiving it; plant daffodils in their name, or donate time at the SPCA in their name. You can imagine their face in everyone you meet, but be careful you don't kiss the cashier wearing your loved one's mask. Take the bunched up love and spread it out like seeds that germinate and grow into a whole field of wildflowers. Okay so it might not be the one big oak tree you thought you would spend your life with. But the world becomes an altar to the love.
+44. Sneak "I love you's" into the world to the ones you love and aren't interested in receiving it; plant daffodils in their name, or donate time at the SPCA in their name. You can imagine their face in everyone you meet, but be careful you don't kiss the cashier wearing your loved one's mask. Take the bunched up love and spread it out like seeds that germinate and grow into a whole field of wildflowers. Okay so it might not be the one big oak tree you thought you would spend your life with. But the world becomes an altar to the love.
 
-46. (I just shared this with a woman who inspired me, having gone though the fire and coming out softer) They say that hard boiled eggs are the only meat that gets harder when cooked. Don't be the hard boiled egg. Let the fire make you tender.
+45. (I just shared this with a woman who inspired me, having gone though the fire and coming out softer) They say that hard boiled eggs are the only meat that gets harder when cooked. Don't be the hard boiled egg. Let the fire make you tender.
 
-47. Tell people when they move you. Let yourself be moved. Like Hafiz says, "Admit something: Everyone you see, you say to them, "Love me." Of course you do not do this out loud; Otherwise, Someone would call the cops. Still though, think about this, This great pull in us To connect. Why not become the one Who lives with a full moon in each eye That is always saying, With that sweet moon Language, What every other eye in this world Is dying to Hear.
+46. Tell people when they move you. Let yourself be moved. Like Hafiz says, "Admit something: Everyone you see, you say to them, "Love me." Of course you do not do this out loud; Otherwise, Someone would call the cops. Still though, think about this, This great pull in us To connect. Why not become the one Who lives with a full moon in each eye That is always saying, With that sweet moon Language, What every other eye in this world Is dying to Hear.
+
+48.If you're going to get a cat, consider a black one. Little sweeties. They are the most euthanized due to superstition. It's a small act to end ignorance.
+
+49. Thank the elements. When you are in the shower, thank the water. When you are cooking, thank the fire. When it's hot and there's a breeze, thank the wind. When you get your bearings, thank the earth. When you relax, thank space.
+
+50.Get a group of friends who are healers and perhaps prayer-givers so that when someone is hurting and you feel helpless, you have something to offer, a place to guide them. Vet well. Put yourself in the healer's hands to ensure you would want to recommend to others.
+
+51. That thing you do because you fear they may leave. Don't do that. Liberate yourself each time you abstain.
+
+52. That formula you've been given to get from others. Don't do that. Just offer. Liberate love itself each time you do.
+
+53. Do the real version, not the easier softer version. If you are going to do yoga, read Patanjali's sutras. If you are going to eat corn, skip the corn syrup. If you are going to do a journey, do it with a qualified shaman. The sacred loses its meaning in the diluted. It can feed the wrong wolf as they say; two wolves, one causes harm, one is good. Feed the one who does good. That one is usually linked to something ancient.
+
+54. Brussels sprouts, figs, and persimmons are vastly underrated.
+Give them their proper due!
+
+55. Read a Joseph Massey poem. Notice the marriage between space and gritty earth coming together.
+
+56. Keep a cool glass of water near you. Or room temperature if that is your thing. It's one of the few things that lives up to the hype.
+
+57. Make your bed first thing after your prayers.
+
+58. If you want to take a nap, tell yourself that's fine-after you take a walk or read some poetry or check in on a friend. Disengagement sometimes disguises itself as fatigue.
+    
+59. Recognize name and fame for what they are extra weight we carry around that saps energy from simply doing what we love.
+
+60. Go mycelium crazy. Go down the rabbit hole. Watch Fabulous Funghi. Read The Secrets of the Wood Wide Web by Robert MacFarlane. Listen to Paul Stamitz. It's a model for a new millennium. Don't take my word for it.
+
+61. Try sleeping on the other side of the bed.
+
+62. Become a boundaries aficionado. Know when you are hitting a limit that if you do one more thing, there will be a resentment. Stop prior to that and let the world off the hook.
+
+63. Start a Beauty and Truth group aimed at expressing the beauty of a marginalized group you are a part of. Scorn never made it to the finish line. The world is love deficient and if you can offer the real deal, many, not all will change their tune. Thirsty people drink. Be the nectar not the vinegar.
+
+64. A wonderful suggestion from a friend. Listen to The Emerald podcast on Spotify: Animism is Normative Consciousness. Revelatory and poetic. A restoration of a lost sense faculty.
+
+65. Go on a complaint fast. Internal and external.
+
+66. Speak well behind someone's back. Be the cure for the
+"someone was just talking to me about you" wince.
+
+67. Build a little fire somewhere safe. Say a prayer, something on the order of, "Any action that I took that was not reflective of unconditional love, I give over." Put some black sesame seeds in your palm and drop them in. Each representing one of those deeds. If it feels like it has an effect, do it again the next day.
+
+68. Do whatever you do wholeheartedly. Don't go on social media to condemn social media for example. The mind goes into learned helplessness. Get out of the skid by going in the direction you are going to reclaim control of your vehicle. Get yourself moving in one direction. Then, when you've gathered yourself, you might (or might not) want to cut down your use of social media.
+
+69. Send something, prayers, jackets, aid to the other side. The dark side that is being mean to your side. Knock down the mind wall that grows between you and the world, the one that sees a big bad, albeit invisible "them." This allows you to see that there is only imperfect person one, person two, person three. See the sea of faces, stubbed toes and unmade beds, the regrets and the child births.
+
+70. See yourself as a drone that can tune into the individuals that make up the offending "them" and feel their hearts. See if they are different from your own. If not, wish them well and thank them for letting you see in.
+
+71. It's okay to communicate only in cat memes.
+
+72. Spend a day keeping your ambient attention at the navel.
+See if it shifts your perception.
+
+73. Read Robert Bly's warm and instructive Little Book of the Human Shadow. Call back the inner witch and the tyrannical patriarch that you may have projected onto the world.
+
+74. Imagine yourself in a bubble. Say your name with the invitation that all that is not you can exit. And then do it again.
+This time with the invitation that all of you that has been lost can return.
+
+75. Watch a YouTube on tea ceremonies. Get some high grade tea. Watch the Mozart in the Jungle episode about the tea ceremony. It's stunning. Offer this to a friend whom you consider noble.
+
+76. Write down 5 things or people you are jealous of. What is it that ignites this jealousy? What do they have that you do not? Vow to develop that. Then, because tithing works, support them in some way. If they are a better writer, buy their book. If they are a better teacher, take their class. Post their work on your social media. If they took your lover, send them sky prayers. Notice if a sympathetic joy begins to replace the tight, gripping hand of jealousy.
+    
+77. Watch the video of Joni Mitchell and Brandi Carlslyle or perhaps Stevie Nicks and Miley Cyrus. Witness the grace of legacies ushering in the new and the humility of the women receiving the baton. See it expertly done. Model this and defy the "women are competitive" division.
+
+78. Good desk chairs matter. Not too fancy. You don't need to feel like you are on the Spaceship Enterprise.
+
+79. If you're in New York (otherwise online) check out Nicholas Roerich's work. Note how he translates emptiness. Marvel. Then read about what a wild character he was and know that the two can co-exist.
+
+80. You can regularly say "I am doing this for you" into the ethers to lost loves. You can say, "I want this world to be better for you even if you choose to be in it without me.'
