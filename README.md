@@ -161,3 +161,104 @@ I keep a list of ways to turn poison into medicine. When I get caught between th
 79. If you're in New York (otherwise online) check out [Nicholas Roerich's](https://wikipedia.org/wiki/Nicholas_Roerich) work. Note how he translates emptiness. Marvel. Then read about what a wild character he was and know that the two can co-exist.
 
 80. You can regularly say "I am doing this for you" into the ethers to lost loves. You can say, "I want this world to be better for you even if you choose to be in it without me.'
+
+
+## The Poison To Medicine List - The Holiday Edition
+
+
+1. Go outside and collect twigs, small beautiful pebbles, bark, feathers, and, if you come across any, bones. Get candles and light them for the wax, some twine, some glue, and a gold pen. Thin red thread is nice too. Cut up some beautiful pieces of parchment. Write 12 dreams, one for each month. Roll them up and tie them with the thread. Build a small altar. Make this how you intoxicate yourself on New Year's.
+
+2. Think of all suggestions, including these, as tiny gifts you are not obligated to open. But if they are helpful, think about regifting one or two.
+
+3. Walk into a Safeway supermarket. Imagine you've entered nirvana, that the name is the code for refuge in the world. The great beyond is right here. The guy pricing the Cheerios is a deity. The oranges offer the nectar of the gods. The fluorescent lighting is pristine luminosity. You've entered the legendary palace. They've been there all along and are so happy to see you.
+
+4. You know those friends you try to sell happiness to? The ones who meet every offer of joy with the 1970's Transactional Analysis "game" of, "Yeah, but." with a catalog as to why they must remain in intractable misery. Honor their choice.
+
+5. In your now brimming notepad, keep an honesty list. The things you wouldn't say, even to yourself—flights of grandiosity, fangs of rage, the oh-so-secret desire that the impossible will occur. The light of day and a good pen have a way of smoothing out what gets bunched up in the belly.
+
+6. "What else?" and "Tell me more," are indispensable catalysts for transforming the difficult into the intimate.
+
+7. The heart of the holidays, giving, is the good strong heart of this time. But eggnog is good for the blood pumping through that heart. (It can be virgin eggnog. Really, the nutmeg does the job).
+
+8. Take a moment to look at an image of someone who inspires you: the Dalai Lama, Desmond Tutu, Dolly Parton, Maya Angelou. Send a bird of thanks from your mind to their doorstep.
+
+9. Employ the expression, "Oh sweetheart," in the face of internal strife. When the claps of tantrums and inner protests happen, say simply, "Oh sweetheart, I know you wanted it to go this way. It looks like it may not. I wish it had, too." Sometimes compassionate alliance lubricates the inner machinery.
+
+10. That being said, remember this life is a lot more dynamic than our fixed senses would have us believe. Pull up anchor and let the mind be carried.
+
+11. Read love letters from the past: Beethoven, Mark Twain, Zelda Sayre. Get good and besotted. Write one to your nemesis. If that is too challenging, choose someone who really irks you. Consider it repairing the threads of your inner tapestry with a gold weave. You don't have to send it.
+
+12. Watch some "Playing For Change" videos where musicians in their homeland play together-one in Zimbabwe, one in Hawaii, one in India playing the tabla. Jackson Browne's "Song Around the World" and Playing for Change's "I'd Rather Go Blind" are a great place to start.
+
+13. Einstein was said to have cherished his "unstructured time"_ time where his mind could roam free in a great psychic garden. Wendy Johnson of Green Gulch Farms kept 10 percent of the garden uncultivated so that the wild would not be forgotten. Allow yourself the same. See what's growing in your natural habitat. It's been reported that the genus Genius is bountiful in these parts.
+
+14. Watch David Attenborough's, "A Life on Our Planet." Pure joyous perspective.
+
+15. Although it violates all the gluten free, lactose, and nightshade rules: a grilled cheese sandwich dipped in tomato soup can be a wonderous thing.
+
+16. Laugh at the odds. Remember, they are man-made symbols in a bell curve reality. But then, chop chop and make it happen.
+
+17. Make bad holiday jokes. "Ho ho ho," is a good starter. But no cheesy, "Santa wants to know if you've been naughty," jokes.
+
+18. "I have no idea what you are talking about," is a perfectly acceptable response when you have no idea what someone is talking about. Provided you don't add in a silent "because you're an idiot" at the end. It can help people awaken from their reveries and it keeps you from having to pretend that you know everything.
+
+19. Formulas are not made for thunder, avoid them at all costs. You do not want to live a whimper life.
+
+20. Every now and again, just in case, buy flowers for, or give a shout out to, someone you loved who passed. It's my guess that without all the extra cartilage and such, they can hear with greater acuity than we might imagine.
+
+21. Write a list of everything you lack. Then, with great flourish, tear up the invoice for the debt the world owes you. Determine you've been paid in full. If you are steady, take the training wheels of "rights" off and become the person who inspires, commands, and draws forth what you would otherwise demand.
+
+22. If you're an awkward human being, and come on, most of us are, you can make social time reading to each other. You don't need to navigate the treacherous water of politics and gossip.
+The best of all worlds.
+
+23. Marvel at lichen. How does it just exist in such magnificent color and light?
+
+24. Find a path. Know that at some point if it's a worthy path it will transform into a bronking bull. This so you can discover what you are made of. This so you can recover the incorruptible self. This, when you become one with the bull. But a nice one, like Ferdinand.
+
+25. Put your feet in the grass for 15 minutes. If it's freezing cold outside, make it 1 minute.
+
+26. Don't aim to be the best on your block at knowing the symptoms.
+Let pain have the honor of simply being pain without the poking and prodding. Start with a simple admission: life hurts. It just does. The cure is often more harmful than the disease.
+
+27. Unless the cure is just sitting with the pain by the river and letting it say what needs to be said. Then it goes over to the other side of resilience.
+
+28. My Lama friend often greets people with tangerines. It's hard to be sad when someone gives you a tangerine.
+
+29. The surfaces of life support the fallacy that there is "nothing to see here folks." Look for the rabbit holes. They house unimaginable bounty. Almost more than the eye can behold.
+
+30. That distant love, the one you lost on one of the curves of life.
+Walk through the imaginary wall. Touch the outline of light that they remain as gently. Let that light enter you. Let yourself be loved in the invisible. Never created or destroyed.
+
+31. When people are mad at you, take your due portion but no more to appease and be liked. That is a form of theft. You are "taking personally" what is not yours. (Thank you Jack Elias who helped me distinguish).
+
+32. Rosemary oil is what caffeine and amphetamines only dream they could be. Dab some right at the base of your jawline.
+
+33. Befriend nuance and complexity. They are good mind allies. Create an ecological wonderland rather than a printout diagnostic of the world: good/bad, right/wrong. Try, "His presence activated a thousand daggers of rage. The siblings of desire and hate walked through my interior," rather than, "He was a narcissist." Give yourself some credit for your choices.
+
+34. Dedicate as much time to reading about eternal events as you do current events. We all need the added nutritive value to make it through the empty calories.
+
+35. Jealousy is a real buzz kill. Especially when it is dressed as virtue.
+Note when you are slighting another in an effort to bring them down to size rather than rising up.
+
+36. If you live near Eucalyptus, and I hope you do, rub a fallen leaf between your hands; the velvet texture and generosity of the scent are sublime.
+
+32. Rosemary oil is what caffeine and amphetamines only dream they could be. Dab some right at the base of your jawline.
+
+33. Befriend nuance and complexity. They are good mind allies. Create an ecological wonderland rather than a printout diagnostic of the world: good/bad, right/wrong. Try, "His presence activated a thousand daggers of rage. The siblings of desire and hate walked through my interior," rather than, "He was a narcissist." Give yourself some credit for your choices.
+
+34. Dedicate as much time to reading about eternal events as you do current events. We all need the added nutritive value to make it through the empty calories.
+
+35. Jealousy is a real buzz kill. Especially when it is dressed as virtue.
+Note when you are slighting another in an effort to bring them down to size rather than rising up.
+
+36. If you live near Eucalyptus, and I hope you do, rub a fallen leaf between your hands; the velvet texture and generosity of the scent are sublime.
+
+37. In Emily Dickenson's words, "to be a flower is a profound responsibility." Recognize the same and complementary power exists in the flower that attracts as in the bee that does its deeds.
+
+38. In Chile, on New Year's, people go around the town restoring broken relationships. Feel free to become an importer of great ideas.
+
+39. Keep a running list of books you want to read, even if you don't get to them. I've had a list since college and I still haven't read Dante's Inferno, but it's how I keep the light on to let it know it's always welcome.
+
+40. Watch the phenomenal "Wings of Desire" by Wim Wenders. It's the holidays; we could all use a little injection of the angelic.
+
+41. Know that there is at least one person who believes that next year will be a great year. And includes your presence in the world as part of the reason why. From my heart, thank you to the allies, guides, friends, the forces seen and unseen, the benevolent adversaries and the wrathful ones, the deer, trees and mushrooms, the mammas and the pappas. Like the Italians say, "La vita è bella!"
